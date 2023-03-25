@@ -1,1 +1,32 @@
 # GIT-DEVOPS
+
+devops is easy
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
